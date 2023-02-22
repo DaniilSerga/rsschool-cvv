@@ -1,1 +1,1 @@
-# Резюме
+# https://daniilserga.github.io/rsschool-cv/cv
